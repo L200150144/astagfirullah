@@ -1,0 +1,2 @@
+# astagfirullah
+iki isine game
